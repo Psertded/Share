@@ -1,2 +1,6 @@
-# Share
-Share files.(All File Have Code!!!!!!!!!!)
+# Share 
+
+Share files.
+### Each file has a password
+
+Email **13757903944@139.com** to get the password.
